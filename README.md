@@ -1,1 +1,1 @@
-# Duzcoo's Perosnal Website
+# Duzcoo's Personal Website
